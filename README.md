@@ -5,4 +5,4 @@
 - 📫 How to reach me I wanna keep it private for now
 
 <!---
-NeneYashiro-tbhk/NeneYashiro-tbhk is a ✨ special ✨ 
+Ali is a ✨ special ✨ 
